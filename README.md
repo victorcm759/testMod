@@ -7,4 +7,4 @@ Un mod de prueba desarrollado para Minecraft 1.7.10
 3. Haz tus cambios :smiling_face_with_three_hearts:
 
 ### ¡Sígueme en mis RR.SS.!
-Encuentra mis redes en [esta página](https://links.victorcm.es)
+Encuentra mis redes en [esta página](https://linktr.ee/victorcm2005)
